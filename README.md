@@ -1,5 +1,5 @@
 
-![Purple](https://www.ebay.co.uk/itm/133853220579)
+![Purple : the most beautiful view color](https://cf.shopee.co.id/file/550692c87af7deaa14a9703012abb5c3)
 
 - 👋 Hi, I’m Lalita Sutra Deta
 - 🌎 I'm from Pemalang, Central Java - Indonesia
