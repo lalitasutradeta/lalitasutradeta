@@ -1,3 +1,5 @@
+<h1 align="center">Hi! This is Lalita's Gallery🤜🤛</h1>
+<h3 align="center">an undergraduate geophysics student at Gadjah Mada University in 2021.</h3>
 
 ![Purple : the most beautiful view color](https://cf.shopee.co.id/file/550692c87af7deaa14a9703012abb5c3)
 
