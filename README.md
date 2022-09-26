@@ -5,7 +5,6 @@
 
 - 👋 Hi, I’m Lalita Sutra Deta
 - 🌎 I'm from Pemalang, Central Java - Indonesia
-- 👀 I’m interested in oil and gas company
 - 🌱 I’m currently learning all about geophysics
 - 💞️ I’m looking to collaborate on everything about my major
 - 📫 How to reach me follow me on instagram @lalitasutra
